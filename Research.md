@@ -1,4 +1,6 @@
-## A New Post
+## Research
+
+Key Ideas
 
 Collection of Writings
 
