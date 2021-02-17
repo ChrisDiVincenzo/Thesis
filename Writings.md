@@ -10,4 +10,4 @@ The Pretty, The Popular, and the Parasite
 
 Impulse Control
 
-Reflecting
+Reflecting/Conclusion/Cyber-Zombification
