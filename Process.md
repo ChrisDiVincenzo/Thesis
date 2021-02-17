@@ -7,5 +7,6 @@ Link to video walk through
 Key ideas through making the video
 
 Reflection with pictures on process
-	- ideas moving forward
-    - my evil self
+- ideas moving forward
+- my evil self
+
