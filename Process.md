@@ -10,3 +10,8 @@ Reflection with pictures on process
 - ideas moving forward
 - my evil self
 
+[Other Animated Projects](http://www.chrisdivincenzo.com/html/experiments.html)
+
+[Other Video Projects (VLog)](http://www.chrisdivincenzo.com/html/vlog.html)
+
+[Alien VLog](http://www.chrisdivincenzo.com/html/videodiary.html)
