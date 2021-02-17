@@ -4,4 +4,6 @@ Link to download and play video game with description
 
 Link to video walk through
 
-Reflection with pictures on process 
+Reflection with pictures on process
+
+After thoughts on Video, install, etc...
