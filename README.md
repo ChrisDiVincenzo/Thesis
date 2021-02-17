@@ -12,4 +12,4 @@ Short Description of Thesis + process
 
 [Installation](Installation.md)
 
-Process (video game + reflections + etc)
+[Process](Process.md)
