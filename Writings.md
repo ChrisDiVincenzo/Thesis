@@ -1,13 +1,13 @@
 ## Am I an Artist?
 
-What is the Right Question? Is this art?
+[What is the Right Question? Is this art?](Questions.md)
 
-Questioning Authenticity
+[Questioning Authenticity](Authenticity.md)
 
-Fetishizing Pixels
+[Fetishizing Pixels](Pixels.md)
 
-The Pretty, The Popular, and the Parasite
+[The Pretty, The Popular, and the Parasite](Parasite.md)
 
-Impulse Control
+[Impulse Control](Impulse.md)
 
-Reflecting/Conclusion/Cyber-Zombification
+[Reflecting/Conclusion/Cyber-Zombification](Reflecting.md)
