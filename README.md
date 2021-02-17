@@ -4,7 +4,7 @@ Cyber Zombification
 ![]({{site.baseurl}}//Education.png)
 
 
-watch here: [Learning is Fun](https://youtu.be/_1-43Bd7kPM)
+**watch here:** [Learning is Fun](https://youtu.be/_1-43Bd7kPM)
 
 Short Description of Thesis + process
 
