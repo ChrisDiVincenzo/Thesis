@@ -4,5 +4,7 @@ Link to download and play video game with description
 
 Link to video walk through
 
+Key ideas through making the video
+
 Reflection with pictures on process
 	- ideas moving forward
