@@ -1,7 +1,7 @@
 ## Research
 
-Key Ideas
+[Key Words and Ideas](KeyWordsIdeas.md)
 
-Influential Texts
+[Influential Texts](Texts.md)
 
-Influential Media
+[Influential Media](Media.md)
