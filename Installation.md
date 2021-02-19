@@ -21,4 +21,7 @@
 - bold and large text in video would look good as vinyl on wall
 - explode out of video, stay true to the video, resist pressure to fill up the wall
 
+**reflection and thoughts:**
+
+Never put anything in a gallery before, worried about a lot of doing this stuff, not sure what I want to do... Something about the posters, vinyl, and projection appeals to me, but I don't know how to make those things happen? Not sure if I want to break up the video, even though I understand and argue with the multiple aesthetics comment. If I were to go through with that option I would want to include a lot more stuff as well, maybe? Like the idea of creating a glitching space that exploded out of the video, but no idea what that means right now.
 
