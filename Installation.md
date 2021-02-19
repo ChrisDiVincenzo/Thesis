@@ -50,3 +50,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - feels like it is still missing something... should the creature be sitting?
 - could try to recreate the room, and play on hard to see monitor in front of the creature, will need monitor, how do I play something on loop with that? maybe i could just dress up iPad to look like something else
 - jail cell?
+- simplify: maybe just creature sitting on stool watching projected video
