@@ -32,5 +32,5 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - Poster?
 - wall of projections (idk how?)
  - use other videos as well?
-- what is the aesthetic? 
-
+- what is the aesthetic?
+— nothing feels just right, need to keep thinking!
