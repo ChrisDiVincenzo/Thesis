@@ -46,6 +46,6 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - second layer of projection with other videos
 - project on garbage bags? - trash is kind of like nonfucntional 
 - can i put vinyl on garbage bags?
-- need to address this: "At this time we do not allow painting/using tapes on walls.", but they seem to allow nailing in??? could nail up garbage bags I guess, just seems extra 
-
-
+- need to address this: "At this time we do not allow painting/using tapes on walls.", but they seem to allow nailing in??? could nail up garbage bags I guess, just seems extra
+- feels like it is still missing something... should the creature be sitting?
+- could try to recreate the room, and play on hard to see monitor in front of the creature, will need monitor, how do I play something on loop with that? 
