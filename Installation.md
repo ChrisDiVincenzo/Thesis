@@ -42,7 +42,7 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - an installation of this video might have to not be functional in reality, it might involve a fleshy creature blocking a projection, with a link to the video vinyled on the wall (where it is being projected)
 - do I need to include the cyborg counterpart? my gut is saying not to
 - do I explode out other things? do I project other videos?
-- how do I create this fleshy object?????? - does it need to be real? feel lik it kind of does... could dress up a mannequin to look like me, maybe add plush? put a bunch of pink clay on face
+- how do I create this fleshy object?????? - does it need to be real? feel like it kind of does... could dress up a mannequin to look like me, maybe add plush? put a bunch of pink clay on face
 - second layer of projection with other videos
 - project on garbage bags? - trash is kind of like nonfucntional 
 - can i put vinyl on garbage bags?
@@ -50,4 +50,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - feels like it is still missing something... should the creature be sitting?
 - could try to recreate the room, and play on hard to see monitor in front of the creature, will need monitor, how do I play something on loop with that? maybe i could just dress up iPad to look like something else
 - jail cell?
-- simplify: maybe just creature sitting on stool watching projected video, aligned so that the viewer can't watch straight on without getting in the way, put a bunch of extra wires too
+- simplify: maybe just creature sitting on stool watching projected video, aligned so that the viewer can't watch straight on without getting in the way, put a bunch of extra wires too... how do I make the projector loop? can I just plug a flashdrive in? creature should be plugged into projector 
