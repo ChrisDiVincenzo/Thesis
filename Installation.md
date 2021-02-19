@@ -43,6 +43,7 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - do I need to include the cyborg counterpart? my gut is saying not to
 - do I explode out other things? do I project other videos?
 - how do I create this fleshy object?????? - does it need to be real? feel lik it kind of does... could dress up a mannequin to look like me, maybe add plush?
-
+- second layer of projection with other videos
+- proejct on gabage bags
 
 
