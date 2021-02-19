@@ -42,7 +42,7 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - an installation of this video might have to not be functional in reality, it might involve a fleshy creature blocking a projection, with a link to the video vinyled on the wall (where it is being projected)
 - do I need to include the cyborg counterpart? my gut is saying not to
 - do I explode out other things? do I project other videos?
-- how do I create this fleshy object?????? - does it need to be real? feel lik it kind of does... could dress up a mannequin to look like me, maybe add plush?
+- how do I create this fleshy object?????? - does it need to be real? feel lik it kind of does... could dress up a mannequin to look like me, maybe add plush? put a bunch of pink clay on face
 - second layer of projection with other videos
 - project on garbage bags? - trash is kind of like nonfucntional 
 - can i put vinyl on garbage bags?
