@@ -35,3 +35,14 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - what is the aesthetic?
 - nothing feels just right, need to keep thinking!
 - maybe the install needs to be a cyberzombie itself? - what does this mean? How can I create a cyberzombie and show this video?
+
+***The _INSTALLLATION_ is a Cyber-Zombie!***
+- a cyber-zombie exists in the real world but has no function in reality, their only function is to glitch cyberspace. In a way they exist more in cyberspace, or aleast their presence is greater there.
+- a cyborg has been fully integrated with their technology, they are in control of their devices, they do not glitch, they exist and function simultaneously in cyberspace and reality
+- an installation of this video might have to not be functional in reality, it might involve a fleshy creature blocking a projection, with a link to the video vinyled on the wall (where it is being projected)
+- do I need to include the cyborg counterpart? my gut is saying not to
+- do I explode out other things? do I project other videos?
+- how do I create this fleshy object?????? - does it need to be real? feel lik it kind of does... could dress up a mannequin to look like me, maybe add plush?
+
+
+
