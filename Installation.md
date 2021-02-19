@@ -34,3 +34,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
  - use other videos as well?
 - what is the aesthetic?
 - nothing feels just right, need to keep thinking!
+- maybe the install needs to be a cyberzombie itself? - what does this mean? How can I create a cyberzombie and show this video?
