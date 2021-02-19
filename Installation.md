@@ -33,4 +33,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - wall of projections (idk how?)
  - use other videos as well?
 - what is the aesthetic?
-— nothing feels just right, need to keep thinking!
+- nothing feels just right, need to keep thinking!
