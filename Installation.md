@@ -28,8 +28,9 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 
 **IDEAS**
 - Nonfunctional Computer with exposed back playing video on pedastal
-- Text Vinyl on walls
+- Text Vinyl on walls, which text, education is my drug? 
 - Poster?
 - wall of projections (idk how?)
+ - use other videos as well?
 - what is the aesthetic? 
 
