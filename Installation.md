@@ -5,8 +5,7 @@
 **Comments:**
 - iPads are slick, untouchable, doesn't mirror aesthetic of the video
 - how should I display video?
-- monitors
-- projectors
+- monitors or projectors?
 - exposing the innerworkings? wires, lag, glitch
 - garbage bag den doesn't provide same experience as shed
 - trash bags will always be trash bags
