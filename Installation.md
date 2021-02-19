@@ -45,5 +45,7 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - how do I create this fleshy object?????? - does it need to be real? feel lik it kind of does... could dress up a mannequin to look like me, maybe add plush?
 - second layer of projection with other videos
 - project on garbage bags? - trash is kind of like nonfucntional 
+- can i put vinyl on garbage bags?
+- need to address this: "At this time we do not allow painting/using tapes on walls.", but they seem to allow nailing in??? could nail up garbage bags I guess, just seems extra 
 
 
