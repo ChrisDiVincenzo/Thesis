@@ -28,7 +28,8 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 
 **IDEAS**
 - Nonfunctional Computer with exposed back playing video on pedastal
-- Vinyl on walls
-- Poster
+- Text Vinyl on walls
+- Poster?
 - wall of projections (idk how?)
+- what is the aesthetic? 
 
