@@ -1,6 +1,6 @@
 ## Influential Texts
 
-### List of Texts I keep thinking about###
+### List of Texts I keep thinking about
 1. Devotional Cinema - Nathaniel Dorsky
 1. Art and Fear - David Bayles and Ted Orland
 1. The Contemporaries - Roger White
