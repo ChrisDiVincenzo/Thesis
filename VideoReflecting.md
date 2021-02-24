@@ -1,8 +1,10 @@
 ## Reflecting on the process
 
-Key ideas through making the video
+Key ideas through making the video? — _remove, in other section_ —
 
-List and Define:
+Why make a Video Game?
+
+Why make a video?
 
 Reflection with pictures on process
 
