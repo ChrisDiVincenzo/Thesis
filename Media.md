@@ -1,3 +1,10 @@
 ## Influential Media
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+### List of Media I keep thinking about###
+1. Example
+1. 
+
+### Brief thoughts on why these are here###
+1. Here because...
+1. 
+
