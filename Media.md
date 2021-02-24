@@ -1,6 +1,6 @@
 ## Influential Media
 
-### List of Media I keep thinking about###
+### List of Media I keep thinking about
 1. Hito Steyerl
 1. Parasite
 1. The Matrix
@@ -14,6 +14,6 @@
 1. Google Doc of Video Art Links
 1. Olafur Eliason?
 
-### Brief thoughts on why these are here###
+### Brief thoughts on why these are here
 1. Here because...
 1.
