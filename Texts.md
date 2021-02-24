@@ -26,7 +26,7 @@
 1. The Uncanny - Mike Kelly
 1. Critical Methods??
 
-### Brief thoughts on why these are here###
+### Brief thoughts on why these are here
 1. Here because...
 1.
 
