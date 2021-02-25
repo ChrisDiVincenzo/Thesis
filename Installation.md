@@ -58,7 +58,7 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 
 [Poster Website](https://www.canva.com/posters/)
 
-[POSTER IDEAS](poster.md)
+[POSTER IDEAS](poster.md) - cancel, video stills
 
 ### 2/25 Meeting: Focus on Materiality
 
