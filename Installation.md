@@ -72,7 +72,5 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - be intentional, make a story and reason for very object placed
 - could use stills to make another glitch video, could incorporate zoom video settings, unstable connection
 - scraps of wood? screwed/clamped together weird, electrified
-
-
-
+- ["no division between artificial matter and organic matter"](https://www.instagram.com/tv/CKo_7kFHlHe/?utm_source=ig_web_copy_link)
 
