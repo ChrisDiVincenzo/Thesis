@@ -59,3 +59,17 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 [Poster Website](https://www.canva.com/posters/)
 
 [POSTER IDEAS](poster.md)
+
+### 2/25 Meeting: Focus on Materiality
+
+- playing with human and nonhuman materials/representations
+- soil wires plastics 
+- potted plants with wires
+- sink? melted plastics in dirt? burn some stuff?
+- uncomfortable clashing of materials
+- consumption 
+- don't do posters, focus on materials/materiality 
+- be intentional
+- could use stills to make another glitch video, could incorporate zoom video settings, unstable connection
+- scraps of wood? screwed/clamped together weird, electrified
+- 
