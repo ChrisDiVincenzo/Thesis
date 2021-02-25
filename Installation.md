@@ -53,7 +53,7 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - simplify: maybe just creature sitting on stool watching projected video, aligned so that the viewer can't watch straight on without getting in the way, put a bunch of extra wires too... how do I make the projector loop? can I just plug a flashdrive in? creature should be plugged into projector
 - make holes in head and project through head?
 - is this enough? feels like it is missing something but can't place it... another object? On the wall or the ground? explode out, what should be there? cover the entire space in pixels... can't do that. should I project on something interesting? hang posters? Only way I know how to do that is with printouts... 
-- https://www.canva.com/posters/
+- [Poster Website](https://www.canva.com/posters/)
 
 ![installationPlan2.png]({{site.baseurl}}/installationPlan2.png)
 
