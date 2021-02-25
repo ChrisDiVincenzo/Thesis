@@ -17,3 +17,8 @@
 ![intraining.jpg]({{site.baseurl}}/intraining.jpg)
 
 ![justkeepswimming.jpg]({{site.baseurl}}/justkeepswimming.jpg)
+
+![seeme.jpg]({{site.baseurl}}/seeme.jpg)
+
+![uhno.jpg]({{site.baseurl}}/uhno.jpg)
+
