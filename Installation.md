@@ -50,4 +50,10 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - feels like it is still missing something... should the creature be sitting?
 - could try to recreate the room, and play on hard to see monitor in front of the creature, will need monitor, how do I play something on loop with that? maybe i could just dress up iPad to look like something else
 - jail cell?
-- simplify: maybe just creature sitting on stool watching projected video, aligned so that the viewer can't watch straight on without getting in the way, put a bunch of extra wires too... how do I make the projector loop? can I just plug a flashdrive in? creature should be plugged into projector 
+- simplify: maybe just creature sitting on stool watching projected video, aligned so that the viewer can't watch straight on without getting in the way, put a bunch of extra wires too... how do I make the projector loop? can I just plug a flashdrive in? creature should be plugged into projector
+- make holes in head and project through head?
+- is this enough?
+- project on something?
+
+![installationPlan2.png]({{site.baseurl}}/installationPlan2.png)
+
