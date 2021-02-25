@@ -14,4 +14,6 @@
 
 ![hell.jpg]({{site.baseurl}}/hell.jpg)
 
+![intraining.jpg]({{site.baseurl}}/intraining.jpg)
 
+![justkeepswimming.jpg]({{site.baseurl}}/justkeepswimming.jpg)
