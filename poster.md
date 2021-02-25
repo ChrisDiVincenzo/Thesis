@@ -6,3 +6,7 @@
 
 ![drowning.jpg]({{site.baseurl}}/drowning.jpg)
 
+![drug.jpg]({{site.baseurl}}/drug.jpg)
+
+![emotionalneeds.jpg]({{site.baseurl}}/emotionalneeds.jpg)
+
