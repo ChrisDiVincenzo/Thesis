@@ -74,3 +74,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - scraps of wood? screwed/clamped together weird, electrified
 - ["no division between artificial matter and organic matter"](https://www.instagram.com/tv/CKo_7kFHlHe/?utm_source=ig_web_copy_link)
 
+
