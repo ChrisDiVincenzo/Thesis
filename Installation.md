@@ -57,3 +57,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 
 ![installationPlan2.png]({{site.baseurl}}/installationPlan2.png)
 
+[POSTER IDEAS](poster.md)
