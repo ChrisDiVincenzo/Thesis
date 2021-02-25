@@ -76,3 +76,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 [Design Emergency with Neri Oxman](https://www.instagram.com/tv/CKo_7kFHlHe/?utm_source=ig_web_copy_link)
 - "no division between artificial matter and organic matter"
 - "cancel out the dimensional mismatch between natural phenomenon and artificial materials, bring those together to design better systems"
+- "I wish for the utimlate unity.. of nature and culture, bio and tech, the world that is built and the world that is grown, and that unity requires a lot of humility... don't think we have earned Mars..."
