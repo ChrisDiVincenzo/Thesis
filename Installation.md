@@ -69,7 +69,7 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - uncomfortable clashing of materials
 - consumption 
 - don't do posters, focus on materials/materiality 
-- be intentional
+- be intentional, make a story and reason for very object placed
 - could use stills to make another glitch video, could incorporate zoom video settings, unstable connection
 - scraps of wood? screwed/clamped together weird, electrified
-- 
+-
