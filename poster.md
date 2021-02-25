@@ -22,3 +22,8 @@
 
 ![uhno.jpg]({{site.baseurl}}/uhno.jpg)
 
+![videogame.jpg]({{site.baseurl}}/videogame.jpg)
+
+![welcome.jpg]({{site.baseurl}}/welcome.jpg)
+
+![zombie.jpg]({{site.baseurl}}/zombie.jpg)
