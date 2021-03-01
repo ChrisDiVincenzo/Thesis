@@ -77,3 +77,7 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - "no division between artificial matter and organic matter"
 - "cancel out the dimensional mismatch between natural phenomenon and artificial materials, bring those together to design better systems"
 - "I wish for the ultimate unity.. of nature and culture, bio and tech, the world that is built and the world that is grown, and that unity requires a lot of humility... don't think we have earned Mars..." - don't earn/deserve Earth either
+
+![clayFace.jpg]({{site.baseurl}}/clayFace.jpg)
+
+
