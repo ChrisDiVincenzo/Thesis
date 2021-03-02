@@ -80,4 +80,11 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 
 ![clayFace.jpg]({{site.baseurl}}/clayFace.jpg)
 
+- standing in clear plastic bin, filled with soil... and a potted plant?
+- other plastic bins? one filled with water? - yes, drowning plastic figurines 
+- other filled with wires?? - can't picture this
+- projector on ground? 
+- printout with link nailed to wall? - QR Code?
+
+![QRCode.png]({{site.baseurl}}/QRCode.png)
 
