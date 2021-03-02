@@ -98,3 +98,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - rusty tools drowning in bin? (don't overkill)
 - chains
 - mushrooms? would feel weird wasting food, but molding food would be good
+- lamp?
