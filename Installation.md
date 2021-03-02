@@ -84,11 +84,17 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - other plastic bins? one filled with water? - yes, drowning plastic figurines 
 - other filled with wires?? - can't picture this
 - projector on ground? 
-- printout with link nailed to wall? - QR Code? (printout one or a bunch?) - could treat them differently, wet, ripped, dirty, burnt, etc...
+- printout with link nailed to wall? - QR Code? (printout one or a bunch?) - could treat them differently, wet, ripped, dirty, burnt, etc... should be mostly unscannable? or scannable? whichever way it should be clear
 
 ![QRCode.png]({{site.baseurl}}/QRCode.png)
 
 - plastic bin with circuits? maybe this should also be drowning, or filled with dirt? bring options, decide later
 - wires connecting mannequin to projector and to other bins
 - mini light bulb and battery sticking out of head, or neck, like a vein
-- 
+- so laptops are turning into these plastic bins kinda? Why? What does the laptop do in funciton that is getting replicated here differently? Laptop as subsitute for environment? 
+- paradoxically distancing, and grants access to environment
+- plastic bin just filled with commingles? - boring? just looks like trash
+- melted warhammer? Would be cool but I don't want to do that lol, maybe to just a couple? idk would be too small for aanyone to notice anyway
+- rusty tools drowning in bin? (don't overkill)
+- chains
+- mushrooms? would feel weird wasting food, but molding food would be good
