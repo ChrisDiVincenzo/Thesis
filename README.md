@@ -15,3 +15,5 @@ This video is influenced by Critical Pedagogy texts and shows multiple versions 
 [Installation](Installation.md)
 
 [Process](Process.md)
+
+[Diagrams](diagrams.md)
