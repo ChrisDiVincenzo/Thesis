@@ -99,3 +99,5 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - chains
 - mushrooms? would feel weird wasting food, but molding food would be good
 - lamp?
+- projector on top of soil
+- 
