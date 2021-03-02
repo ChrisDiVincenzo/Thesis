@@ -84,7 +84,11 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - other plastic bins? one filled with water? - yes, drowning plastic figurines 
 - other filled with wires?? - can't picture this
 - projector on ground? 
-- printout with link nailed to wall? - QR Code?
+- printout with link nailed to wall? - QR Code? (printout one or a bunch?) - could treat them differently, wet, ripped, dirty, burnt, etc...
 
 ![QRCode.png]({{site.baseurl}}/QRCode.png)
 
+- plastic bin with circuits? maybe this should also be drowning, or filled with dirt? bring options, decide later
+- wires connecting mannequin to projector and to other bins
+- mini light bulb and battery sticking out of head, or neck, like a vein
+- 
