@@ -4,7 +4,7 @@
 
 ![GalleryOne copy.png]({{site.baseurl}}/GalleryOne copy.png)
 
-![zombie.png]({{site.baseurl}}/zombie.png)
+![zombie2.png]({{site.baseurl}}/zombie2.png)
 
 ![cyborg.png]({{site.baseurl}}/cyborg.png)
 
