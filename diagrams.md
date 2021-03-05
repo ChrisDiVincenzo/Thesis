@@ -6,7 +6,7 @@
 
 ![zombie2.png]({{site.baseurl}}/zombie2.png)
 
-![cyborg.png]({{site.baseurl}}/cyborg.png)
+![cyborg2.png]({{site.baseurl}}/cyborg2.png)
 
 ![stageOfMeWords.png]({{site.baseurl}}/stageOfMeWords.png)
 
