@@ -1,5 +1,15 @@
 ## Details on install at MAASS Gallery (SUNY Purchase)
 
+[Brochure](https://chrisdivincenzo.github.io/MediaArtsMFAThesisExhibition/)
+
+Installation Photos
+
+Installation Videos
+
+Installation Reflection
+
+## Process:
+
 ### 2/18 Crit:
 ![]({{site.baseurl}}//diagramThesis.png)
 **Comments:**
@@ -100,4 +110,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - mushrooms? would feel weird wasting food, but molding food would be good
 - lamp?
 - projector on top of soil
-- 
+-
