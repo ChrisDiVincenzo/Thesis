@@ -11,3 +11,6 @@
 ![stageOfMeWords.png]({{site.baseurl}}/stageOfMeWords.png)
 
 ![StartHere.png]({{site.baseurl}}/StartHere.png)
+
+![educationHammer copy.png]({{site.baseurl}}/educationHammer copy.png)
+
