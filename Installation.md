@@ -111,3 +111,5 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - lamp?
 - projector on top of soil
 -
+
+![Screen Shot 2021-03-09 at 4.14.20 PM.png]({{site.baseurl}}/Screen Shot 2021-03-09 at 4.14.20 PM.png)
