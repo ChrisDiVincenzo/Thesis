@@ -8,11 +8,11 @@
 
 ![cyborg2.png]({{site.baseurl}}/cyborg2.png)
 
-![stageOfMeWords.png]({{site.baseurl}}/stageOfMeWords.png)
+![stagesOfMeWords.png]({{site.baseurl}}/stagesOfMeWords.png)
 
 ![StartHere.png]({{site.baseurl}}/StartHere.png)
 
 ![educationHammer copy.png]({{site.baseurl}}/educationHammer copy.png)
 
-![Room2.png]({{site.baseurl}}/Room2.png)
+![Room2 copy.png]({{site.baseurl}}/Room2 copy.png)
 
