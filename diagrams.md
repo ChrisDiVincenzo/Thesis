@@ -14,5 +14,5 @@
 
 ![educationHammer copy.png]({{site.baseurl}}/educationHammer copy.png)
 
-![Room copy.png]({{site.baseurl}}/Room copy.png)
+![Room2.png]({{site.baseurl}}/Room2.png)
 
