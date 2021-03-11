@@ -8,13 +8,9 @@
 
 ![Cyborg3.jpg]({{site.baseurl}}/Cyborg3.jpg)
 
-![stagesOfMeWords.png]({{site.baseurl}}/stagesOfMeWords.png)
-
 ![ReducedStagesF2.jpg]({{site.baseurl}}/ReducedStagesF2.jpg)
 
-![StartHere.png]({{site.baseurl}}/StartHere.png)
-
-
+![ReducedProcessF2.jpg]({{site.baseurl}}/ReducedProcessF2.jpg)
 
 ![Hammer.jpg]({{site.baseurl}}/Hammer.jpg)
 
