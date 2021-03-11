@@ -4,15 +4,14 @@
 
 ![GalleryOne copy.png]({{site.baseurl}}/GalleryOne copy.png)
 
-![zombie2.png]({{site.baseurl}}/zombie2.png)
+![Zombie3.jpg]({{site.baseurl}}/Zombie3.jpg)
 
-![cyborg2.png]({{site.baseurl}}/cyborg2.png)
+![Cyborg3.jpg]({{site.baseurl}}/Cyborg3.jpg)
 
 ![stagesOfMeWords.png]({{site.baseurl}}/stagesOfMeWords.png)
 
 ![StartHere.png]({{site.baseurl}}/StartHere.png)
 
-![educationHammer copy.png]({{site.baseurl}}/educationHammer copy.png)
+![Hammer.jpg]({{site.baseurl}}/Hammer.jpg)
 
-![Room2 copy.png]({{site.baseurl}}/Room2 copy.png)
-
+![Room3.jpg]({{site.baseurl}}/Room3.jpg)
