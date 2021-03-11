@@ -10,7 +10,11 @@
 
 ![stagesOfMeWords.png]({{site.baseurl}}/stagesOfMeWords.png)
 
+![ReducedStagesF2.jpg]({{site.baseurl}}/ReducedStagesF2.jpg)
+
 ![StartHere.png]({{site.baseurl}}/StartHere.png)
+
+
 
 ![Hammer.jpg]({{site.baseurl}}/Hammer.jpg)
 
