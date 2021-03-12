@@ -113,3 +113,18 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 -
 
 ![Screen Shot 2021-03-09 at 4.14.20 PM.png]({{site.baseurl}}/Screen Shot 2021-03-09 at 4.14.20 PM.png)
+
+- poster diagrams too much, doesn't give the video space to breathe, too much weight on diagrams as opposited to video, where is/should the focus be? 
+- becomes mental puzzle, diminishing
+- diagrams have a corporate presentation gone wrong feel, could work better in different format, i.e. slideshow
+- separate idea, can't do now but outlandish portrait of manneuqin, framed lavishly, giant, living by mannequin, how the photo can be more than the object
+
+### so what am I going to do?
+- exclude the diagrams entirely?
+- can they live in a separate space? 
+- how else could they live?
+- on the floor? QR codes, also where on I putting the video QR code? on the projector?
+- use the diagrams for something else?
+- book of them? 
+- also, how am I going to hang these?
+- could do both?
