@@ -128,3 +128,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - book of them? 
 - also, how am I going to hang these?
 - could do both? (with and with out)
+- well what do I wanna do? I mean I kinda wanna just put them up now, but I feel like I see the point about them detracting.... ugh
