@@ -127,4 +127,4 @@ Never put anything in a gallery before, worried about a lot of doing this stuff,
 - use the diagrams for something else?
 - book of them? 
 - also, how am I going to hang these?
-- could do both?
+- could do both? (with and with out)
