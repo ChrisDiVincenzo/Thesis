@@ -17,3 +17,5 @@ This video is influenced by Critical Pedagogy texts and shows multiple versions 
 [Process](Process.md)
 
 [Diagrams](diagrams.md)
+
+[Artist Bio](bio.md)
