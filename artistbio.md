@@ -11,7 +11,7 @@
 - Favorite color: magenta, but sometimes green. 
 - Registered Democrat. 
 - Yonkers resident. 
-- Lives with two cats, 41 plants, 1 human, and unknown quantity of insects. 
+- Lives with two cats, 41 plants, 1 human, 2 computers, and unknown quantity of insects. 
 - The artist is 26 years old. 
 - He has mid hearing lose, excessive earwax buildup, slightly bent nose from childhood anteater transformation experiment, poor eye sight, protruding bones below the ankles, sensitive eczema skin.
 - 100% openness, 77% conscientiousness, 23% extraversion, 87.5% agreeableness and 79% Neuroticism. 
