@@ -18,4 +18,4 @@ This video is influenced by Critical Pedagogy texts and shows multiple versions 
 
 [Diagrams](diagrams.md)
 
-[Artist Bio](bio.md)
+[Artist Bio](artistbio.md)
