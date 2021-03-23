@@ -1,6 +1,6 @@
 ## Details on install at MAASS Gallery (SUNY Purchase)
 
-[Brochure](chrisdivincenzo.com/html/installation.html)
+[Brochure](http://www.chrisdivincenzo.com/html/installation.html)
 
 Installation Photos
 
