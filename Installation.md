@@ -1,6 +1,6 @@
 ## Details on install at MAASS Gallery (SUNY Purchase)
 
-[Brochure](http://www.chrisdivincenzo.com/html/installation.html)
+[Brochure](https://chrisdivincenzo.github.io/MediaArtsMFAThesisExhibition/)
 
 Installation Photos
 
