@@ -1,6 +1,6 @@
 ## Influential Media
 
-### List of Media I keep thinking about
+### List of Media and Artists I keep thinking about
 1. Hito Steyerl
 1. Parasite
 1. The Matrix
