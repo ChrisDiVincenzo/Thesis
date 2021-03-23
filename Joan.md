@@ -7,6 +7,9 @@ Samie’s work engages the political importance of intimacy and minutia, their i
 
 ![unnamed.png]({{site.baseurl}}/unnamed.png)
 
+![AF1QipN6yUKDlLDeW2k4wF-Xu5sdJaPexR50A8Oqe_Yo=w2048-h1536.jpg]({{site.baseurl}}/AF1QipN6yUKDlLDeW2k4wF-Xu5sdJaPexR50A8Oqe_Yo=w2048-h1536.jpg)
+
+
 Stills from Joan’s first video on the bottom, and Joan in the Ardsley Album pt 1.
 Second image of installation of  photo album, complete with tissues and Microban can.
 
