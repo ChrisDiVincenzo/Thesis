@@ -1,4 +1,5 @@
-## PHOTOS from MAASS Gallery Installation, 3/19/2021-3/31/2021
+## MAASS Gallery Installation Photos
+_3/19/2021-3/31/2021_
 
 ![side.jpg]({{site.baseurl}}/side.jpg)
 
