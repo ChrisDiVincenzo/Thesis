@@ -2,11 +2,11 @@
 
 [Brochure](https://chrisdivincenzo.github.io/MediaArtsMFAThesisExhibition/)
 
-Installation Photos
+[Installation Photos](iphotos.md)
 
-Installation Videos
+[Installation Videos](ivideo.md)
 
-Installation Reflection
+[Installation Reflection](ireflect.md)
 
 ## Process:
 
