@@ -22,4 +22,5 @@
 
 ![rust.jpg]({{site.baseurl}}/rust.jpg)
 
+![mud.jpg]({{site.baseurl}}/mud.jpg)
 
