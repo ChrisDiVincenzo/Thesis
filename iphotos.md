@@ -14,5 +14,12 @@
 
 ![body.jpg]({{site.baseurl}}/body.jpg)
 
-
 ![pinkFace.jpg]({{site.baseurl}}/pinkFace.jpg)
+
+![dirtyFeet.jpg]({{site.baseurl}}/dirtyFeet.jpg)
+
+![bagRipped.jpg]({{site.baseurl}}/bagRipped.jpg)
+
+![rust.jpg]({{site.baseurl}}/rust.jpg)
+
+
