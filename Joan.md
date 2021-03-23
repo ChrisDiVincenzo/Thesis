@@ -22,10 +22,17 @@ uncertainty. The theatrical, entertaining nature of existing within and for a pu
 Meet her on:
 
 [Tiktok !](https://www.tiktok.com/@itsmejoantoday?lang=en)
+
 [Twitch !](https://www.twitch.tv/search?term=itsmejoantoday)
+
 [Twitter !](https://twitter.com/itsmejoantoday)
+
 [Youtube !](https://www.youtube.com/watch?v=XENCwOIuHDg&t=590s)
+
 [Facebook !](https://www.facebook.com/people/Joan-Johnson/100059456732010)
+
 [Instagram !](https://www.instagram.com/itsmejoantoday/)
+
 [Pinterest !](https://www.pinterest.com/itsmejoantoday/)
+
 [Reddit !](https://www.reddit.com/user/Itsmejoantoday/comments/ji2ce8/oh_is_this_why_i_cant_post_it_i_didnt_give_it_a/)
