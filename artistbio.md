@@ -8,11 +8,11 @@
 - [Ethnicity Estimate](https://www.ancestry.com/) is 37% Southern Italy, 34% Northern Italy, 12% France, 11% Ireland, 3% Middle East, 3% Germanic Europe. 
 - [Kitchen/Herb Witch](https://www.wiccangathering.com/wp_quiz/what-type-of-witch-am-i/), [frog](https://www.wiccangathering.com/wp_quiz/wiccan-familiar-quiz/) familiar, [Apollo](https://www.wiccangathering.com/wp_quiz/wiccan-deities-quiz/) worshiper. 
 - [Primary area of interest](https://test.careeraddict.com): 88% Education and Training, 88% Land and Environment, 84% Art and Design 80% Engineering and 76% Computing and Technology. 
-- Favorite color: magenta, but sometimes green. 
-- Registered Democrat. 
-- Yonkers resident. 
+- Favorite color: [magenta](http://www.bwallpapers.com/wallpaper/magenta-6733/), but sometimes [green](https://www.youtube.com/watch?v=FuHrLg8Ew7Q). 
+- Registered [Democrat](https://www.ecosia.org/images?q=Political%20Graph%20Test&expansion=%257B%2522text%2522%253A%2522Political%2520Graph%2520Test%2522%252C%2522displayText%2522%253A%2522Graph%2522%252C%2522thumbnailURL%2522%253A%2522https%253A%252F%252Ftse4.mm.bing.net%252Fth%253Fq%253DPolitical%252BGraph%252BTest%2526pid%253DApi%2526mkt%253Den-US%2526adlt%253Dmoderate%2526t%253D1%2522%257D&originalQuery=politic%20test#). 
+- [Yonkers](https://kids.britannica.com/students/assembly/view/55206) resident. 
 - Lives with two cats, 41 plants, 1 human, 2 computers, and unknown quantity of insects. 
-- The artist is 26 years old. 
+- The artist is [26 years old](https://www.famousbirthdays.com/age/26.html). 
 - He has mid hearing lose, excessive earwax buildup, slightly bent nose from childhood anteater transformation experiment, poor eye sight, protruding bones below the ankles, sensitive eczema skin.
 - [Core personality pattern:](https://www.truity.com/test/big-five-personality-test) Empathic Idealist.
 - 100% openness, 77% conscientiousness, 23% extraversion, 87.5% agreeableness and 79% Neuroticism. 
