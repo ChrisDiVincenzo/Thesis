@@ -1,6 +1,8 @@
 ## MAASS Gallery Installation Photos
 _3/19/2021-3/31/2021_
 
+[Diagrams Here](diagrams.md)
+
 ![side.jpg]({{site.baseurl}}/side.jpg)
 
 ![bored.jpg]({{site.baseurl}}/bored.jpg)
@@ -24,4 +26,3 @@ _3/19/2021-3/31/2021_
 ![rust.jpg]({{site.baseurl}}/rust.jpg)
 
 ![mud.jpg]({{site.baseurl}}/mud.jpg)
-
