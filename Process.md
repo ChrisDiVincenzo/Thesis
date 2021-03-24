@@ -18,6 +18,6 @@ The video game included in the video project places the user in their own educat
 
 [Alien VLog](http://www.chrisdivincenzo.com/html/videodiary.html)
 
-## THE BABY!
+## [THE BABY!](thebaby.md)
 
 Before engaging in this thesis proejct, I ventured into the woodshop for the first time to try to make, "something". While I did not think the work that came out of this and my thesis were connected, I now realized that I could not have come to this thesis without first creating this baby...
