@@ -4,7 +4,7 @@
 
 [Installation Photos](iphotos.md)
 
-[Installation Videos](ivideo.md)
+[Installation Videos](https://youtu.be/F78QPSrHfPQ)
 
 [Installation Reflection](ireflect.md)
 
