@@ -14,10 +14,15 @@ The video game included in the video project places the user in their own educat
 
 [Other Animated Projects](http://www.chrisdivincenzo.com/html/experiments.html)
 
+_experiments, 2D, still spaces, etc..._
+
 [Other Video Projects (VLog)](http://www.chrisdivincenzo.com/html/vlog.html)
+
+_Framed as diaries, one per work was original intention..._
 
 [Alien VLog](http://www.chrisdivincenzo.com/html/videodiary.html)
 
-### [The Baby](thebaby.md)
+_First semester project blah, blah, blah..._
 
-Before engaging in this thesis proejct, I ventured into the woodshop for the first time to try to make, "something". While I did not think the work that came out of this and my thesis were connected, I now realized that I could not have come to this thesis without first creating this baby...
+### [The Baby](thebaby.md)
+_Before engaging in this thesis proejct, I ventured into the woodshop for the first time to try to make, "something". While I did not think the work that came out of this and my thesis were connected, I now realized that I could not have come to this thesis without first creating this baby..._
