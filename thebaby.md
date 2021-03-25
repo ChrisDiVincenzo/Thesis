@@ -12,4 +12,6 @@
 
 ![IMG_3196.JPG]({{site.baseurl}}/IMG_3196.JPG)
 
+![IMG_3210.JPG]({{site.baseurl}}/IMG_3210.JPG)
+
 background! - the email, the program, etc...
