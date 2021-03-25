@@ -8,6 +8,8 @@ The video game included in the video project places the user in their own educat
 
 [Link to video walk-through](https://www.youtube.com/watch?v=rGM_gd95WrM&feature=emb_logo)
 
+_to me, the video project is an interdimensional explosion of this video game_
+
 ![Editing.png]({{site.baseurl}}/Editing.png)
 _I only use free software, such as Da Vinci Resolve_
 
