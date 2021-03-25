@@ -1,7 +1,7 @@
 ## Christopher Mario Di Vincenzo
 
 - [Sun Leo, Moon Aquarius, Rising Scorpio, Chiron/MC Line](https://www.astrosofa.com/horoscope/ascendant).     
-- [Personality type](https://www.16personalities.com/): The Mediator (INFP-T). 
+- [Personality type](https://www.16personalities.com/): The [Mediator](https://www.deviantart.com/loleite/art/The-Mediator-337982835) (INFP-T). 
 - Height: 5'10.87"
 - weight: 155 lbs. 
 - Fears: [machines operated by humans](https://theconversation.com/humans-and-machines-can-improve-accuracy-when-they-work-together-112737), [tiny poisonous insects burrowing into flesh](https://www.youtube.com/watch?v=CehDxi_qImY&ab_channel=TellerzWorld), and [needles](https://www.123rf.com/photo_2425939_surgeon-holding-giant-needle-.html). Allergic to [tree nuts](https://allergynorthwest.nhs.uk/resources/allergy-leaflets/tree-nut-allergy/). 
@@ -11,7 +11,7 @@
 - Favorite color: [magenta](http://www.bwallpapers.com/wallpaper/magenta-6733/), but sometimes [green](https://www.youtube.com/watch?v=FuHrLg8Ew7Q). 
 - Registered [Democrat](https://www.ecosia.org/images?q=Political%20Graph%20Test&expansion=%257B%2522text%2522%253A%2522Political%2520Graph%2520Test%2522%252C%2522displayText%2522%253A%2522Graph%2522%252C%2522thumbnailURL%2522%253A%2522https%253A%252F%252Ftse4.mm.bing.net%252Fth%253Fq%253DPolitical%252BGraph%252BTest%2526pid%253DApi%2526mkt%253Den-US%2526adlt%253Dmoderate%2526t%253D1%2522%257D&originalQuery=politic%20test#). 
 - [Yonkers](https://kids.britannica.com/students/assembly/view/55206) resident. 
-- Lives with two cats, 41 plants, 1 human, 2 computers, and unknown quantity of insects. 
+- Lives with two [cats](https://www.catsaregods.com/who-we-are/), 41 [plants](https://www.treehugger.com/why-you-should-talk-your-plants-4862668), 1 [human](https://en.wikipedia.org/wiki/Human), 2 [computers](https://www.youtube.com/watch?v=ynTIY7AdKqo&ab_channel=ALurkingGrue), and unknown quantity of [insects](https://askabiologist.asu.edu/insect-and-human-biology). 
 - The artist is [26 years old](https://www.famousbirthdays.com/age/26.html). 
 - He has mid hearing lose, excessive earwax buildup, slightly bent nose from childhood anteater transformation experiment, poor eye sight, protruding bones below the ankles, sensitive eczema skin.
 - [Core personality pattern:](https://www.truity.com/test/big-five-personality-test) Empathic Idealist.
