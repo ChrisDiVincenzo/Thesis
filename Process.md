@@ -1,4 +1,4 @@
-## Thoughts and files on the process of creating this video 
+## Thoughts and files on the process/precursors of creating this video 
 
 [Link to download and play video game](https://drive.google.com/file/d/1taTHbhOsVNT-cIwhFnc3yX3fFGImJx1E/view?usp=sharing)
 
@@ -8,9 +8,8 @@ The video game included in the video project places the user in their own educat
 
 [Link to video walk-through](https://www.youtube.com/watch?v=rGM_gd95WrM&feature=emb_logo)
 
-[Reflection on Video Making Process](VideoReflecting.md)
-
 ![Editing.png]({{site.baseurl}}/Editing.png)
+_I only use free software, such as Da Vinci Resolve_
 
 [Other Animated Projects](http://www.chrisdivincenzo.com/html/experiments.html)
 
