@@ -14,4 +14,4 @@
 
 ![IMG_3210.JPG]({{site.baseurl}}/IMG_3210.JPG)
 
-background! - the email, the program, etc...
+The MFA Media Arts and Culture program was alive for a total of three years, after two years it was "deactivated" by the administration. This declaration was a violation of a SUNY Purchase bylaw and prompted the above work. I place all the blame for this on Barry Pearson. This was an unnecessary "budget cut" that was not in the best interest of the students and was extremely disrespectful to the faculty. I have no confidence in Barry's "leadership", and do not it reflects what Purchase is truly about.
