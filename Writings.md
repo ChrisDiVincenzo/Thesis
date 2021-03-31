@@ -14,3 +14,15 @@ VI. [Reflecting/Conclusion/Cyber-Zombification](https://docs.google.com/document
 
 ## Thesis Paper
 _a written paper that furthers ideas that have fueled this video piece and discusses the process of its creation and transformation through time and space!_
+
+I. start in the middle, talk about video?
+
+II. Talk about pedagogy that informed it
+
+III. go back, alien, vLogs, construction, animation
+
+IV. installation and transformation
+
+V. pedagogy and continuation, looking forward/teaching philosophy 
+
+...stop trying to figure it all out, just start writing something?...and researching
