@@ -11,3 +11,6 @@ IV. [The Pretty, The Popular, and the Parasite](https://docs.google.com/document
 V. [Impulse Control](https://docs.google.com/document/d/1QmZPp1lgwAbBOMh75zQI8XSPc5uCBhR-VG1UZr190iI/edit?usp=sharing)
 
 VI. [Reflecting/Conclusion/Cyber-Zombification](https://docs.google.com/document/d/1sXCCwquFI_4wxbKbj9v8oUSvl4lBaVMTTQW4uMZHvlk/edit?usp=sharing)
+
+## Thesis Paper
+_a written paper that furthers ideas that have fueled this video piece and discusses the process of its creation and transformation through time and space!_
