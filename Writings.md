@@ -12,17 +12,5 @@ V. [Impulse Control](https://docs.google.com/document/d/1QmZPp1lgwAbBOMh75zQI8XS
 
 VI. [Reflecting/Conclusion/Cyber-Zombification](https://docs.google.com/document/d/1sXCCwquFI_4wxbKbj9v8oUSvl4lBaVMTTQW4uMZHvlk/edit?usp=sharing)
 
-## Thesis Paper
-_a written paper that furthers ideas that have fueled this video piece and discusses the process of its creation and transformation through time and space!_
+## [Thesis Paper](https://docs.google.com/document/d/1ZWJgb08x7A1mgIAZ4Q0r_DKQDms1dR2Sse-47IwB1hA/edit)
 
-I. start in the middle, talk about video?
-
-II. Talk about pedagogy that informed it
-
-III. go back, alien, vLogs, construction, animation
-
-IV. installation and transformation
-
-V. pedagogy and continuation, looking forward/teaching philosophy 
-
-...stop trying to figure it all out, just start writing something?...and researching
