@@ -14,3 +14,5 @@ VI. [Reflecting/Conclusion/Cyber-Zombification](https://docs.google.com/document
 
 ## [Thesis Paper](https://docs.google.com/document/d/1ZWJgb08x7A1mgIAZ4Q0r_DKQDms1dR2Sse-47IwB1hA/edit)
 
+/Write "abstract" here/
+
