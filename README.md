@@ -19,3 +19,5 @@ This video is influenced by Critical Pedagogy texts and shows multiple versions 
 [Diagrams](diagrams.md)
 
 [Artist Bio](artistbio.md)
+
+[Diagram Generator](https://editor.p5js.org/chrismdv00/present/C0xxCQ6c0)
