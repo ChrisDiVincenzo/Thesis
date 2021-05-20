@@ -1,4 +1,3 @@
-## [MEMORIES OF EDUCATION](/https://drive.google.com/file/d/181BGCeOJlLuB6TdXOER4pQhC6ebo6jWC/view?usp=sharing)
+## [MEMORIES OF EDUCATION](https://drive.google.com/file/d/181BGCeOJlLuB6TdXOER4pQhC6ebo6jWC/view?usp=sharing)
 
 This paper takes a personal look at the author’s memories of education juxtaposed against memories of the movies the author watched repetitively growing up. These two sets of memories are tied together through the theories of critical pedagogy discussed by Kevin Gannon in Radical Hope and la paperson’s concept of a scyborg. This entanglement coincides with the emergence of the author’s practice of experimentation, of which the art practices at Black Mountain College were the inspiration. The author’s video accompaniment, Techno-Learning (2021), their installation, and diagrams have all evolved side-by-side with this paper’s argument. This paper aims to question ideas of learning, teaching, and progress by proposing a sidestep into an imperfect utopia (escaping from the dystopia present) by arguing for an expanded definition of education.
-
